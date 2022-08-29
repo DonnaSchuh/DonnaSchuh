@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DonnaSchuh
+- 👋 Hi, I’m 
 - 👀 I’m interested in a play toy 
 - 🌱 I’m currently learning talk on nets like add mess
 - 💞️ I’m looking to collaborate on nothing yet
